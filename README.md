@@ -153,7 +153,7 @@ _Note: each row for each account._
 
 ## Contact and Support
 
-- **Support me via** [Referral Link](https://app.galxe.com/quest/xrplevmsidechain/GCaM3t1wTe?referral_code=GRFr2JiteymuEnvqZsPOIO4qIUWvmgjWvd538z6sauYnE7g)
+- **Support me via** [Galxe Referral Link](https://app.galxe.com/quest/xrplevmsidechain/GCaM3t1wTe?referral_code=GRFr2JiteymuEnvqZsPOIO4qIUWvmgjWvd538z6sauYnE7g) | [Swap referral Link](https://testnet.xrise33.com/ref/X7QCLIgtrl91DrRJYqHod6YSrHK)
 - **Support me via Donate** [Here](https://t.me/KeoAirDropFreeNe/312/27801)
 - **Contact for work:** [Telegram](https://t.me/MeoMunDep)
 - **Join the support group:** [Join here](https://t.me/KeoAirDropFreeNe)
